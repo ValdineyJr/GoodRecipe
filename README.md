@@ -1,0 +1,1 @@
+É uma receita de como fazer yakisoba, um dos meus pratos favoritos, quiçá o primeiro
